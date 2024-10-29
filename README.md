@@ -13,4 +13,8 @@
 5. ~~You stole the prime ministers bike~~ 
 6. That was someone else.
 
-## The Blame
+## The Sentence
+
+1. You are declared guilty of indecency and sedition and public rudeness.
+2. The sentence for the above felonies is life in San Quentin Rehabilitation Center.
+3. You will be escored there on *Otcober 31, 2022*. Have a good day. 
